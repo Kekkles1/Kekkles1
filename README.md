@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm Fatima! I normally go by the online name "Balorant". Unfortunatelym github username can't be changed to that :(
+I'm Fatima! I normally go by the online name "Balorant". Unfortunately my github username can't be changed to that :(
 
 
 ## 💗 Interests !
